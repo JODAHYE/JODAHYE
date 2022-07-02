@@ -15,7 +15,7 @@
 
 
 ## Contact
-이메일: dahye8043@gmail.com
+Email: dahye8043@gmail.com
 
   
 
